@@ -1,4 +1,6 @@
 # Pensamento Fora do Código: 5 Regras para o Sucesso Tecnológico 🌌
+![capa](https://github.com/andrefods1993/lab-natty-or-not/assets/132412680/0e371a82-374c-4b26-802c-9ff8eb7a546a)
+
 
 ## 📒 Descrição
 
